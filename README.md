@@ -1,1 +1,0 @@
-# tearajatash.github.io
